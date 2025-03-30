@@ -1,3 +1,4 @@
+![1000430800](https://github.com/user-attachments/assets/35de84cb-7d49-4d5f-9278-f94a6c67abbc)
 # User manual
 
 [[toc]]
